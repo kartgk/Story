@@ -1,1 +1,1 @@
-Once upon a time, there was a dog that was very hungry. He was searching the farm for something to eat and suddenly found a bone!
+Once upon a time, there was a dog that was very hungry. He was searching the farm for something to eat and suddenly found a bone! The dog was filled with joy and carried the bone to the jungle. On the way, the dog had to cross a bridge. 
